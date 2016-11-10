@@ -9,18 +9,6 @@ Acupuncture is in a state of relative flux regarding its acceptance within moder
 
 2) Call your health insurer. Most medical health insurance policies do not actually cover acupuncture, which means that this one generally is a long shot. However, it is actually one worth taking, given that a couple of minutes for this particular call might not exactly just get you a reference but one the insurance plan covers, regardless of whether only partially.
 
-acupuncture clinic 
-acupuncture treatment
-http://www.mapquest.com/places/orlando-acupuncture-winter-park-fl-276190706/
-http://www.whitepages.com/business/details?uid=AJc66GB
-http://www.switchboard.com/business/details?uid=AJc66GB
-http://www.topix.com/yp/winter-park-fl/l-1257698229-orlando-acupuncture
-http://www.411.com/business/details?uid=AJc66GB
-http://www.dexknows.com/business_profiles/orlando_acupuncture-l1051842496
-http://www.americantowns.com/yext/listing/yx-2449621
-http://www.yelp.com/biz/orlando-acupuncture-winter-park
-https://foursquare.com/v/orlando-acupuncture/4de554442271f377c290cdd4
-
 <iframe src="https://www.google.com/maps/d/embed?mid=1N54TwsXqCzFKZANW7VCSDJ_nsvw" width="640" height="480"></iframe>
 
 3) Ask around your Yoga studio or your Yoga-practicing friends. Given acupuncture's status as an alternative kind of healing or medicine, <a href="http://www.411.com/business/details?uid=AJc66GB">acupuncturists</a> are frequently related to Yoga studios and other connected businesses. If there's not just a Yoga teacher who does acupuncture herself, she likely knows someone who does perform service.
